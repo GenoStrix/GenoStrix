@@ -1,5 +1,4 @@
-# 💫 About Me:
-kebanggaan mamah
+# 💫 kebanggaan mamah
 
 
 ## 🌐 Socials:
